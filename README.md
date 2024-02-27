@@ -1,3 +1,3 @@
 ### Link to the Thunkable App with Ad
 
-https://x.thunkable.com/projects/65c4f576c8c2a891c2c06d6b/9c1ecdcc-ae5e-4f66-80ff-3750b25475f4/designer
+https://x.thunkable.com/copy/bbdc1c89cf82eb36bceb2364f6a60e95 
